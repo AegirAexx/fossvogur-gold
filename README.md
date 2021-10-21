@@ -8,7 +8,7 @@ Fossvogur Gold is an alternate 9 hole layout for the Fossvogur Disc Golf course 
 
 Fossvogur Gold is a par 30 layout and is roughly 1240 meters or 4068 feet.
 
-The course general flow is that you play from one tee pad to the next basket.
+The course general flow is that you play from one tee pad to the next basket. During your round you will make two laps of the course.
 
 There is OB everywhere, **ALL WATER IS OB** and there are a bunch of mandatories which should prove difficult for players to navigate.
 
