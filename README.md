@@ -116,7 +116,7 @@ The double mandatory is the trees on either side of the gap.
 
 ## Hole 9
 
-**Par 3 - 170m**
+**Par 3 - 110m**
 
 **Tee Pad 8 >> Basket 9**
 
