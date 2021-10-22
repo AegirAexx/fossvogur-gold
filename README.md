@@ -120,6 +120,10 @@ The double mandatory is the trees on either side of the gap.
 
 **Tee Pad 8 >> Basket 9**
 
+Here the island is over the creek, all OB's in the water go to the DZ.
+
+DZ is located on the asphalt long of the basket and faces the creek for the come back putt.
+
 ![Hole 9](images/hole_9.png)
 
 ---
